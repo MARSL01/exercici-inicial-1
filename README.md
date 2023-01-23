@@ -1,1 +1,0 @@
-# exercici-inicial-1
